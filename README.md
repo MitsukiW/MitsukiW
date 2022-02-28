@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MitsukiW
+- 👀 I’m interested in something
+- 🌱 I’m currently learning idk english?
+- 💞️ I’m looking to collaborate on your mom
+- 📫 How to reach me, through discord.
